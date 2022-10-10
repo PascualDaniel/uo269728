@@ -1,4 +1,4 @@
-### HELLO THERE
+### To err is human, but to really foul things up you need a computer.
 
 ![monke](https://media3.giphy.com/media/XGqDsE3owV0RO/giphy.gif)
 
